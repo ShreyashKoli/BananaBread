@@ -1,0 +1,8 @@
+Ingredients:
+2 cups all-purpose flour
+1 teaspoon baking soda
+1/4 teaspoon salt
+1/2 cup butter
+3/4 cup brown sugar
+2 eggs, beaten
+2 1/3 cups mashed overripe bananas
